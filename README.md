@@ -71,7 +71,7 @@ I did this assignment by myself.
 
 ![image](https://user-images.githubusercontent.com/68690234/200469211-85b34470-63b9-4fc3-8fb4-6f4404dce93c.png)
 
-#                                                            THANK YOU
+
 
 
 
